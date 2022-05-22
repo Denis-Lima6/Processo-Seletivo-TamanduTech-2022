@@ -1,1 +1,0 @@
-# Processo-Seletivo-TamanduTech-2022
